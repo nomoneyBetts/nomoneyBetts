@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nomoneyBetts
+- 👀 I’m interested in game design
+- 📫 How to reach me austin.betts@nomoneystudios.com
